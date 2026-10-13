@@ -14,7 +14,7 @@
 
 **Burdened with glorious purpose. ✨**
 
-I’m a fantasy writer and editor at [WizardWorld.ir](https://wizardworld.ir/), and I love chasing fan theories, hidden clues, and the endless “what ifs” of fictional worlds.
+I’m a fantasy writer and editor, and I love chasing fan theories, hidden clues, and the endless “what ifs” of fictional worlds.
 
 When I’m not writing, I’m usually designing websites, solving problems, or turning one of my random ideas into a real tool. And if I’m not doing any of that, I’m probably practicing magic. 😁🪄
 
@@ -31,7 +31,7 @@ When I’m not writing, I’m usually designing websites, solving problems, or t
 
 ## 🌐 Find Me
 
-- **Website:** [wizardworld.ir](https://wizardworld.ir/)
+- **Portfolio:** [shivathewitch.ir](https://shivathewitch.ir)
 - **Email:** [redwitch1294@gmail.com](mailto:redwitch1294@gmail.com)
 - **Telegram:** [@ShivaTheWitch](https://t.me/ShivaTheWitch)
 - **Instagram:** [@shiva_the_witch](https://instagram.com/shiva_the_witch)
